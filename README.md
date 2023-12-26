@@ -12,7 +12,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 * 🤝  I'm open to collaborating on 学習用のいろいろ : Various for learning
 * ⚡  楽しい人生を送りたいよね : I'd love to have a good life, wouldn't you?
 
-### Skills
+### Skills(遊んだことあるだけのもの。できるとは言ってない)
 
 
 <p align="left">
